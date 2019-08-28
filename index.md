@@ -4,7 +4,7 @@ Things I Like about  193
 
 - FunTA
 - Fun Teachers
-- Usefull things I am learning
+- I am learning new things
 
 
 
